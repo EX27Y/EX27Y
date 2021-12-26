@@ -1,8 +1,10 @@
 - 👋 Hi, I’m @EX27Y
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in < Making the impossibility  = possible > 
+- 🌱 I’m currently learning electromagnetic fields, Spirituality, Wisdom & Witchcraft 🧙
+- 💞️ I’m looking to collaborate on the highest level possible 🌞 We are building 
+what Nikola Tesla wanted to show us but Edison stole the ideas, we get there back!
+A step back is sometimes better than a step forwards!
+- 📫 How to reach me INSTAGRAM : ex27x
 
 <!---
 EX27Y/EX27Y is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
